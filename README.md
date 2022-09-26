@@ -1,1 +1,1 @@
-### Hi 👋, I am Teja Harsha, I am am Android Developer.
+### Hi 👋, I am Teja Harsha, I am an Android Developer.
