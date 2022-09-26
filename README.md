@@ -1,2 +1,1 @@
-### Hi 👋, I am Teja Harsha, I build apps.
-
+### Hi 👋, I am Teja Harsha, I am am Android Developer.
